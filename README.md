@@ -11,6 +11,7 @@ I'm a software testing engineer with over 5 years of experience in automation te
 - LinkedIn: [asarachynski](https://www.linkedin.com/in/asarachynski/)
 
 ## ⚡ Fun fact:
-I once watched *The Office* and *How I Met Your Mother* on repeat with my girlfriend, and I’m always looking for a new show to binge-watch. Also, I like to push myself to walk 10,000 steps every day and keep fit!
+
+I love cacti, but I don't have any at home.
 
 ## 😄 Pronouns: He/Him
